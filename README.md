@@ -1,4 +1,6 @@
-Thank you guys for 2 years, it's been a pleasure <3
+Thank you guys for 2 years, it's been a pleasure <3 - faggot iidk
+
+
 i added a rat - cooldomain
 
 <p align="center">
